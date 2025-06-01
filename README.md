@@ -1,8 +1,15 @@
 # 色情APP-成人APP-色情视频
 色情直播app是主要以成人内容为主，其中又分多钟类型，如萝莉、少女、女优、明星等版块，这类内容往往都禁止18岁以下观众查阅观看，部分国家和地区更是禁止传播和展示，这类app又成为成人app、色情app、情色app等，内容几乎大同小异！
 
-萝莉岛：lolii.net  lkt520.com  lolii.tv
-女儿国：neg520.tv  neg520.com  neg520.cc
+萝莉岛：
+[下载链接1](https://lolii.net) 
+[下载链接2](https://lkt500.vip) 
+[下载链接3](https://lolii.tv) 
 
-<a>neg520.cc</a>
+女儿国：
+[下载链接1](https://neg520.cc) 
+[下载链接2](https://neg520.com) 
+[下载链接3](https://neg520.tv) 
+
+
 
